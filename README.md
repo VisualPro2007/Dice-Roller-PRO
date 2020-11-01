@@ -9,7 +9,7 @@ Do not Sell this application to anyone, this could cause jail period for a long 
 
 You cant ask me for the source code, if you ask you are getting BANNED from the GitHub Servers.
 
----END---
+
 
 
 
